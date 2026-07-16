@@ -1,1 +1,0 @@
-# jojos_catalogue
